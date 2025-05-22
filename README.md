@@ -1,0 +1,1 @@
+# rdxcultura2.9
